@@ -49,6 +49,13 @@
 
 
 
+![cliente mujer recorte redondo](https://user-images.githubusercontent.com/65374030/146512484-d9d10669-f3dd-4d44-a8b4-7aab13819d35.png)
+![cliente recorte circular](https://user-images.githubusercontent.com/65374030/146512489-c1974c7e-f752-441d-ab29-504096a22701.png)
+![cliente recorte redondo](https://user-images.githubusercontent.com/65374030/146512491-592a9729-0e79-407b-9ace-55b6899e5f41.png)
+![katsiaryna-endruszkiewicz-BteCp6aq4GI-unsplash](https://user-images.githubusercontent.com/65374030/146512492-40aa8102-8564-4ae2-9323-d2b7c2c66fe6.png)
+
+
+
 
 
 
